@@ -1,0 +1,3 @@
+- 👋 Hii, LasaiI here. New to this thing, let's do it.
+- 🌱 Learning and growing. It's a process. 
+- 🔑 Moving forward.
